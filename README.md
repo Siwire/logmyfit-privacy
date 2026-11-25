@@ -1,0 +1,1 @@
+# logmyfit-privacy
